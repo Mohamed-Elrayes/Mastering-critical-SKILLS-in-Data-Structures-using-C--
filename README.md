@@ -55,7 +55,7 @@ Preferred:
 - Project Building Skills.
 - Basic Programming Problem-Solving Skills.
 
-It is going to be a transformative experience. Please read reviews to get a flavor of that. It is not going to be easy work. It will be a Stanford-like course. You can skip homework if you want an easier or shorter learning experience.
+It is going to be a transformation experience. Please read reviews to get a flavor of that. It is not going to be easy work. It will be a Stanford-like course. You can skip homework if you want an easier or shorter learning experience.
 
 Don't miss such a unique learning experience!
 
